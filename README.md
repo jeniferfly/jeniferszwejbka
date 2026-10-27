@@ -1,5 +1,5 @@
 # jeniferszwejbka
-Design Systems • UX • AI Workflows • Product Thinking • Interactive Experiences
+Design Systems • Brand Strategy • AI Workflows • UX/UI • Interactive Experiences
 
 ---
 
