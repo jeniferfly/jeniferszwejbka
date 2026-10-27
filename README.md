@@ -74,8 +74,8 @@ I believe thoughtful systems, reusable components, and well-crafted documentatio
 
 ## 📫 Let's Connect
 
-- LinkedIn
-- Portfolio (coming soon)
+- [LinkedIn](https://www.linkedin.com/in/jeniferx/)
+- [About.Me](https://about.me/jeniferszwejbka)
 
 ---
 
