@@ -1,4 +1,4 @@
-# jeniferszwejbka
+# Jenifer Szwejbka
 Design Systems • Brand Strategy • AI Workflows • UX/UI • Interactive Experiences
 
 ---
